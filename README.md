@@ -1,5 +1,5 @@
 # Rutger Hemrika
-## Digital Leader | IT & Technology Growth | Company & Team Builder
+## Digital Leader | IT & AI Technology Growth | Company & Team Builder
 
 Strategic and forward-thinking IT executive with over two decades of experience leading technology transformation and governance across diverse industries. Renowned for architecting robust IT strategies that drive innovation, business resilience, and ethical technology adoption.
 
